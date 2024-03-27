@@ -9,7 +9,7 @@
 
 - 📫 Reach me at **vitacristian24@gmail.com**
 
-- 📄 Know about my experiences [[https://www.linkedin.com/in/cristian-v%C3%AE%C5%A3%C4%83-a43123158/details/featured/1635555529905/single-media-viewer/?profileId=ACoAACW_yBMBP5gWa7UCpwkSVCiww9hMzbuBIbI]([https://www.linkedin.com/in/cristian-v%C3%AE%C5%A3%C4%83-a43123158/details/featured/1635555529905/single-media-viewer/?profileId=ACoAACW_yBMBP5gWa7UCpwkSVCiww9hMzbuBIbI](https://www.linkedin.com/in/cristian-v%C3%AE%C5%A3%C4%83/))](https://www.linkedin.com/in/cristian-vita/)
+- 📄 Know about my experiences (https://www.linkedin.com/in/cristian-vita/)
 
 - ⚡ Fun fact **I enjoy a good movie, food, memes and bad/dark humour.**
 
